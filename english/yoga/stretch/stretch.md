@@ -7,3 +7,6 @@ The "snap" of the muscle wakes you up (again?). You are now on the top of a moun
 What is going on? Where am I?
 
 Panic.
+
+Calm down.  This is yoga after all.  Take a deep breath and look around.
+
